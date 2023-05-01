@@ -2,8 +2,8 @@ Privacy Policy
 ----------------
 
 ### Introduction  
-Our privacy policy will help you understand what information we collect at Получение гражданства Грузии, how Получение гражданства Грузии uses it, and what choices you have.
-Получение гражданства Грузии built the Получение гражданства Грузии app as a free app. This SERVICE is provided by Получение гражданства Грузии at no cost and is intended for use as is.
+Our privacy policy will help you understand what information we collect at Georgian Citizenship Test, how Georgian Citizenship Test uses it, and what choices you have.
+Georgian Citizenship Test built the Georgian Citizenship Test app as a free app. This SERVICE is provided by Georgian Citizenship Test at no cost and is intended for use as is.
 If you choose to use our Service, then you agree to the collection and use of information in  relation with this policy. The Personal Information that we collect are used for providing and improving the Service. We will not use or share your information with anyone except as described in this Privacy Policy.  
 The terms used in this Privacy Policy have the same meanings as in our Terms and Conditions, which is accessible in our website, unless otherwise  defined in this Privacy Policy.
 
